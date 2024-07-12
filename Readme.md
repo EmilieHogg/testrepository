@@ -1,5 +1,5 @@
 # TITRE
 ## sous-titr
- ### Historique de la nataton sychronisée
+Historique de la nataton sychronisée
 
-Ho la la ! les faues d'orthographe...
+mais ou est passe le chat§
